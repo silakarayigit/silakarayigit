@@ -9,7 +9,6 @@ I am Sıla Karayiğit.
 ## Contact
 
 - **Email:** [sla.kraygt.4@gmail.com](mailto:sla.kraygt.4@gmail.com)
-- **LinkedIn:** [linkedin.com/in/mertssmnoglu](https://linkedin.com/in/slakrygt444)
 
 ## Links
 
